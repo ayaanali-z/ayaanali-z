@@ -10,4 +10,4 @@ Other Background:
 I also am a student journalist. I love tech journalism. 
 I'm a staff news writer for the Columbia Daily Spectator.  
 
-Reach out to me through any socials! I'm most active on Twitter. 
+Feel free to reach out! I'm most active on Twitter. 
