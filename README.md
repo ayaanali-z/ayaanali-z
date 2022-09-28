@@ -8,17 +8,6 @@ Languages I currently work in (hopefully this list grows): Java.
 
 Other Background: 
 I also am a student journalist. I love tech journalism. 
-I'm a staff news writer for the Columbia Daily Spectator. 
+I'm a staff news writer for the Columbia Daily Spectator.  
 
-Contact: 
-Instagram: @__ayaanali 
-
-Twitter: @__ayaanali 
-
-Linkedin: Ayaan Ali 
-
-Personal Email: ayaanali5204@outlook.com 
-
-School Email: aa4688@columbia.edu 
-
-Thanks for visiting my profile :-D ! 
+Reach out to me through any socials! I'm most active on Twitter. 
