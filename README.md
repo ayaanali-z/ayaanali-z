@@ -5,7 +5,7 @@ CS Background:
 I'm a first-year computer science student at Columbia University.   
 
 Other Background: 
-I also am a student journalist. I love tech journalism. 
+I also am a student journalist. 
 I'm a staff news writer for the Columbia Daily Spectator.  
 
 Feel free to reach out! I'm most active on Twitter. 
